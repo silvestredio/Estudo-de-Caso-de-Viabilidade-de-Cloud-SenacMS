@@ -33,20 +33,36 @@ O diretor do Senac-MS, Vitor Mello, falou sobre o conceito do Senac Hub Academy.
 
 #SilvestreTI #TrilhosDigitais #19dez19 #Cloud 
 
-Fonte >>> https://www.facebook.com/story.php?story_fbid=6346002998803064&id=100001802804068  
+Fonte >>> https://www.facebook.com/story.php?story_fbid=6346002998803064&id=100001802804068 
 
 ![SENAChub 2021 11 19 Curso Cloud Computing 06](https://user-images.githubusercontent.com/93165498/142645702-5b23bbc9-88ec-4824-9f1d-0f006528e8ac.jpg)
 
-Feliz por fazer parte do Primeiro Curso de Arquitetura de Sistemas #CloudComputing - no Hub Academy do #SenacMS. Qualidade na Formação Profissional que com sua nova Estrutura na Frente do #HortoFlorestal em Campo Grande, fará um #UpGrade nas #TrilhasTI na #CapitalMorena e nas #TerrasPantaneiras (#PantanalSul)!!! 
+Segunda Aula do #PrimeiroCurso de #ArquiteturaDeSistemas #CloudComputing - no #HubAcademy do #SenacMS. https://www.facebook.com/SilvestreOSF/posts/6332954560107908
 
-Fonte >>>  https://facebook.com/story.php?story_fbid=6307896169280414&id=100001802804068
+No Linkedin >>> https://www.linkedin.com/posts/silvestreti_cloudcomputing-hubacademy-senacms-activity-6864236595457888256-XQ3I 
 
-![SENAChub 2021 11 19 Curso Cloud Computing 07](https://user-images.githubusercontent.com/93165498/142645729-db9267f5-7fd9-48b2-8086-fa6c844e247b.jpg)
+![SENAChub 2021 11 19 Curso Cloud Computing 07](https://user-images.githubusercontent.com/93165498/142645729-db9267f5-7fd9-48b2-8086-fa6c844e247b.jpg) 
+
+
+Feliz por fazer parte do Primeiro Curso de Arquitetura de Sistemas #CloudComputing no Hub Academy do #SenacMS. Qualidade na Formação Profissional que com sua nova Estrutura na Frente do #HortoFlorestal em Campo Grande, fará um #UpGrade nas #TrilhasTI na #CapitalMorena e nas #TerrasPantaneiras (#PantanalSul)!!! 
+
+https://www.facebook.com/SilvestreOSF/posts/6307896169280414 
 
 ![SENAChub 2021 11 19 Curso Cloud Computing 08](https://user-images.githubusercontent.com/93165498/142645755-c780e4f9-5760-4bd1-b9f8-b015ee4e2f04.jpg) 
 
+Segunda Aula do #PrimeiroCurso de #ArquiteturaDeSistemas #CloudComputing - no #HubAcademy do #SenacMS. E fotos dos Cursos Excel, PHP e dos Banners Institucionais neste novo Espaço #Senac MS inaugurado no dia 18 de outubro (...)
+
+Fonte >>> https://www.facebook.com/SilvestreOSF/posts/6332954560107908
+
 ![SENAChub 2021 11 19 Curso Cloud Computing 09](https://user-images.githubusercontent.com/93165498/142645797-858fb874-b024-4f7b-8f20-3111d89affa2.jpg)
 
+Registrando que neste dia #18out2021 será a Inauguração Oficial do #SenacHUBAcademy de Campo Grande MS na Frente do #HortoFlorestal. Área de #TI fortemente contemplada. #SilvestreTI #TrilhosDigitais #19dez19 #SIGAMOS... 
+
+(...) O presidente do Conselho Deliberativo do Senac MS e da Fecomércio-MS, Edison Araújo, lembrou que a obra foi concebida após mais de 10 anos entre idealização e execução do projeto, sendo executada em três etapas, das quais duas estão prontas e a última, que é o Centro de Convenções, já teve a ordem de serviço assinada para dar início à construção. “Seremos um Centro de Referência e Inovação em Ensino Profissional”. O investimento total somará R$ 45 milhões, sendo que 90% custeados pelo Senac Nacional. ... Fonte: #FecomércioMS 
+
+#SenacHUB #Academy #HUBSenac #SENACMS 
+
+Fonte >>> https://www.facebook.com/SilvestreOSF/posts/6208829439187088 
 
 
 
