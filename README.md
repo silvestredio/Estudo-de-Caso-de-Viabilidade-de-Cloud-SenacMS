@@ -16,4 +16,19 @@ Instrutor >>> Ederson Roberto da Costa
 ![SENAChubAcademy01](https://user-images.githubusercontent.com/93165498/142642945-bca85b9e-eb00-407a-9866-08060e74d49e.jpg)
 
 
+## Terceira Aula do Primeiro Curso de #Arquitetura de Sistemas #CloudComputing no #HubAcademy do #SenacMS 
+
+Neste novo #EspaçoSenac MS inaugurado no dia 18 de outubro, unidade voltada para a formação profissional de Mato Grosso do Sul, o #SenacHubAcademy, em Campo Grande. Qualidade na Formação Profissional que com sua nova Estrutura na Frente do #HortoFlorestal em Campo Grande, fará um #UpGrade nas #TrilhasTI na #CapitalMorena e nas #TerrasPantaneiras (#PantanalSul)!!! 
+
+Foram investidos no espaço mais de R$ 35 milhões para a construção e aquisição de todos os equipamentos e mobiliários da unidade, com aporte regional e do nacional do Senac. 
+
+A escola apresenta um novo conceito em educação, ampliando o ensino tradicional para o formato Hub. Um espaço de conexões com um novo mundo de formação profissional com aulas diferenciadas, uso intensivo de tecnologia, forte interação com o setor produtivo, parcerias e eventos diversos. A metodologia Hub oportuniza ao aluno a possibilidade de escolher entre vários caminhos, como entrar no mercado de trabalho, mudar sua área de atuação, aperfeiçoar-se ou empreender, em um vasto universo de oportunidades. O objetivo também é ser um espaço para o empresário que queira desenvolver sua equipe e/ou adquirir conhecimentos de temas relevantes na atualidade, atendendo às demandas do mercado de trabalho que está em constante transformação.
+
+A última etapa da obra, já em andamento, inclui a construção de dois auditórios, um de 400 e outro de 100 lugares, com aporte adicional de mais R$12 milhões em investimentos, que formarão um centro de convenções moderno e com amplas possibilidades de eventos, com previsão de conclusão para o final de 2022, além da ampliação do estacionamento do prédio.
+
+O diretor do Senac-MS, Vitor Mello, falou sobre o conceito do Senac Hub Academy. “O Hub é um equipamento utilizado na área da informática para realizar a conexão de computadores de uma rede e possibilitar a transmissão de informações entre essas máquinas. Então, o termo sintetiza bem o que será o espaço Hub Academy, uma escola moderna, atual, muito focada na tecnologia, não apenas da área de tecnologia da informação, mas da tecnologia como tema transversal para qualquer carreira e que terá o foco de conectar pessoas, ideias, empresas. Essa escola foi pensada para trazer a tecnologia para todas as ocupações. E o diferencial do Senac Hub Academy vai além de uma exuberante infraestrutura física, chegando ao jeito de ensinar, explorando as metodologias ativas a partir do modelo pedagógico do Senac, pautado no ensino por competência e não apenas no conteúdo”, explica.
+
+#SilvestreTI #TrilhosDigitais #19dez19 #Cloud 
+https://www.facebook.com/story.php?story_fbid=6346002998803064&id=100001802804068 
+
 
