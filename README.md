@@ -41,8 +41,6 @@ Fonte >>> https://www.facebook.com/story.php?story_fbid=6346002998803064&id=1000
 
 Segunda Aula do #PrimeiroCurso de #ArquiteturaDeSistemas #CloudComputing - no #HubAcademy do #SenacMS. E fotos dos Cursos Excel, PHP e dos Banners Institucionais neste novo Espaço #Senac MS inaugurado no dia 18 de outubro (...)
 
-Fonte >>> https://www.facebook.com/SilvestreOSF/posts/6332954560107908 
-
 ![SENAChub 2021 11 19 Curso Cloud Computing 05b](https://user-images.githubusercontent.com/93165498/142652444-4410ddf4-ffe0-4016-b9e7-adb5347dfd60.jpg) 
 
 Segunda Aula do #PrimeiroCurso de #ArquiteturaDeSistemas #CloudComputing - no #HubAcademy do #SenacMS. https://www.facebook.com/SilvestreOSF/posts/6332954560107908
