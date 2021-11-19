@@ -39,11 +39,10 @@ Fonte >>> https://www.facebook.com/story.php?story_fbid=6346002998803064&id=1000
 
 ![SENAChub 2021 11 19 Curso Cloud Computing 06](https://user-images.githubusercontent.com/93165498/142645702-5b23bbc9-88ec-4824-9f1d-0f006528e8ac.jpg)
 
-Segunda Aula do #PrimeiroCurso de #ArquiteturaDeSistemas #CloudComputing - no #HubAcademy do #SenacMS. E fotos dos Cursos Excel, PHP e dos Banners Institucionais neste novo Espaço #Senac MS inaugurado no dia 18 de outubro (...)
-
 ![SENAChub 2021 11 19 Curso Cloud Computing 05b](https://user-images.githubusercontent.com/93165498/142652444-4410ddf4-ffe0-4016-b9e7-adb5347dfd60.jpg) 
 
-Segunda Aula do #PrimeiroCurso de #ArquiteturaDeSistemas #CloudComputing - no #HubAcademy do #SenacMS. https://www.facebook.com/SilvestreOSF/posts/6332954560107908
+Segunda Aula do #PrimeiroCurso de #ArquiteturaDeSistemas #CloudComputing - no #HubAcademy do #SenacMS. E fotos dos Cursos Excel, PHP e dos Banners Institucionais neste novo Espaço #Senac MS inaugurado no dia 18 de outubro (...)
+https://www.facebook.com/SilvestreOSF/posts/6332954560107908
 
 No Linkedin >>> https://www.linkedin.com/posts/silvestreti_cloudcomputing-hubacademy-senacms-activity-6864236595457888256-XQ3I 
 
