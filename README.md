@@ -11,7 +11,9 @@ Instrutor >>> Ederson Roberto da Costa
 
 ![SENAChub 2021 11 19 Curso Cloud Computing 03](https://user-images.githubusercontent.com/93165498/142642720-aa7527ab-8b61-4018-865b-9d279c5bd437.jpg)
 
-![SENAChub 2021 11 19 Curso Cloud Computing 04](https://user-images.githubusercontent.com/93165498/142642754-23e90e84-c4d3-49cb-bf33-5a4990f9cf6e.jpg)
+![SENAChub 2021 11 19 Curso Cloud Computing 04](https://user-images.githubusercontent.com/93165498/142642754-23e90e84-c4d3-49cb-bf33-5a4990f9cf6e.jpg) 
+
+![SENAChub 2021 11 19 Curso Cloud Computing 05a](https://user-images.githubusercontent.com/93165498/142652403-990dda9a-5d0d-44d0-840f-6c9e004d6221.jpg)
 
 ![SENAChubAcademy01](https://user-images.githubusercontent.com/93165498/142642945-bca85b9e-eb00-407a-9866-08060e74d49e.jpg) 
 
@@ -52,7 +54,9 @@ https://www.facebook.com/SilvestreOSF/posts/6307896169280414
 
 Segunda Aula do #PrimeiroCurso de #ArquiteturaDeSistemas #CloudComputing - no #HubAcademy do #SenacMS. E fotos dos Cursos Excel, PHP e dos Banners Institucionais neste novo Espaço #Senac MS inaugurado no dia 18 de outubro (...)
 
-Fonte >>> https://www.facebook.com/SilvestreOSF/posts/6332954560107908
+Fonte >>> https://www.facebook.com/SilvestreOSF/posts/6332954560107908 
+
+![SENAChub 2021 11 19 Curso Cloud Computing 05b](https://user-images.githubusercontent.com/93165498/142652444-4410ddf4-ffe0-4016-b9e7-adb5347dfd60.jpg)
 
 ![SENAChub 2021 11 19 Curso Cloud Computing 09](https://user-images.githubusercontent.com/93165498/142645797-858fb874-b024-4f7b-8f20-3111d89affa2.jpg)
 
