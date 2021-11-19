@@ -13,8 +13,11 @@ Instrutor >>> Ederson Roberto da Costa
 
 ![SENAChub 2021 11 19 Curso Cloud Computing 04](https://user-images.githubusercontent.com/93165498/142642754-23e90e84-c4d3-49cb-bf33-5a4990f9cf6e.jpg)
 
-![SENAChubAcademy01](https://user-images.githubusercontent.com/93165498/142642945-bca85b9e-eb00-407a-9866-08060e74d49e.jpg)
+![SENAChubAcademy01](https://user-images.githubusercontent.com/93165498/142642945-bca85b9e-eb00-407a-9866-08060e74d49e.jpg) 
 
+## 1a. Turma de #CloudComputing no #HubAcademy do #SenacMS 
+
+![SENAChub 2021 11 19 Curso Cloud Computing 05](https://user-images.githubusercontent.com/93165498/142646157-cde0c14e-cec2-4f0f-88e4-6f2f1c64c22c.jpg)
 
 ## Terceira Aula do Primeiro Curso de #Arquitetura de Sistemas #CloudComputing no #HubAcademy do #SenacMS 
 
@@ -29,11 +32,14 @@ A última etapa da obra, já em andamento, inclui a construção de dois auditó
 O diretor do Senac-MS, Vitor Mello, falou sobre o conceito do Senac Hub Academy. “O Hub é um equipamento utilizado na área da informática para realizar a conexão de computadores de uma rede e possibilitar a transmissão de informações entre essas máquinas. Então, o termo sintetiza bem o que será o espaço Hub Academy, uma escola moderna, atual, muito focada na tecnologia, não apenas da área de tecnologia da informação, mas da tecnologia como tema transversal para qualquer carreira e que terá o foco de conectar pessoas, ideias, empresas. Essa escola foi pensada para trazer a tecnologia para todas as ocupações. E o diferencial do Senac Hub Academy vai além de uma exuberante infraestrutura física, chegando ao jeito de ensinar, explorando as metodologias ativas a partir do modelo pedagógico do Senac, pautado no ensino por competência e não apenas no conteúdo”, explica.
 
 #SilvestreTI #TrilhosDigitais #19dez19 #Cloud 
-https://www.facebook.com/story.php?story_fbid=6346002998803064&id=100001802804068  
 
-05
+Fonte >>> https://www.facebook.com/story.php?story_fbid=6346002998803064&id=100001802804068  
 
 ![SENAChub 2021 11 19 Curso Cloud Computing 06](https://user-images.githubusercontent.com/93165498/142645702-5b23bbc9-88ec-4824-9f1d-0f006528e8ac.jpg)
+
+Feliz por fazer parte do Primeiro Curso de Arquitetura de Sistemas #CloudComputing - no Hub Academy do #SenacMS. Qualidade na Formação Profissional que com sua nova Estrutura na Frente do #HortoFlorestal em Campo Grande, fará um #UpGrade nas #TrilhasTI na #CapitalMorena e nas #TerrasPantaneiras (#PantanalSul)!!! 
+
+Fonte >>>  https://facebook.com/story.php?story_fbid=6307896169280414&id=100001802804068
 
 ![SENAChub 2021 11 19 Curso Cloud Computing 07](https://user-images.githubusercontent.com/93165498/142645729-db9267f5-7fd9-48b2-8086-fa6c844e247b.jpg)
 
